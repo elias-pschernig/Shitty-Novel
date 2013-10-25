@@ -11,3 +11,5 @@ Don't worry about your ideas being good or unique, just write for the sake of wr
 
 You can also start your own <bookname>.md file and write the beginning of contents
 for your story, which other contributors will then expand upon.
+
+**No, I'm not waiting for November. Feel free to write whenever**
