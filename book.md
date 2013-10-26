@@ -17,5 +17,5 @@ I waddle over to the kitchen window and try to stare out. The door doesn't have 
 
 After a minute of silence, I open the door. I hope it's just the UPS guy, because I like getting packages. Oh, no, that wasn't a euphamism. I'm just addicted to Amazon.
 
-Nobody is to be seen. I look left and right, but to no avail - whoever or whatever I heard before is no longer here.
+Nobody is to be seen. I look left and right, but to no avail - whoever or whatever I heard before is no longer here. However, as I look to the right, I see a migrating bird crap on my car. As I run to clean off my car, I trip over a package from ebay. I don't recognize the return shipping address. What could it be?
 
