@@ -19,3 +19,4 @@ After a minute of silence, I open the door. I hope it's just the UPS guy, becaus
 
 Nobody is to be seen. I look left and right, but to no avail - whoever or whatever I heard before is no longer here. However, as I look to the right, I see a migrating bird crap on my car. As I run to clean off my car, I trip over a package from ebay. I don't recognize the return shipping address. What could it be?
 
+I pick up the tissue-box-sized package and balance it together in my arms with the paper towels and Windex, and walk back inside.  The other things get dropped lazily onto the kitchen counter, and I pick up a knife to open the package with. I pull out the popcorn (damn, no bubble wrap). I jump backwards, startled. Inside the box, are a set of Pokémon cards... covered in blood.
