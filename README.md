@@ -13,3 +13,6 @@ You can also start your own <bookname>.md file and write the beginning of conten
 for your story, which other contributors will then expand upon.
 
 **No, I'm not waiting for November. Feel free to write whenever**
+
+## Special Characters
+If you need to type "é" on Windows, hold left-Alt and type (on the number pad), 0233
