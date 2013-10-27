@@ -24,3 +24,15 @@ I pick up the tissue-box-sized package and balance it together in my arms with t
 I opened the cupboard and put on a pair of yellow latex gloves. I carefully remove the pokemon cards only to find a note underneath, written in crayon. The words are not legible, however. This appears to be the handwriting of a doctor.
 
 I give up trying to decipher it and instead lick the card. I instantly recognize the taste. "Mhh tomato juice." There's only one doctor I know who would drink tomato juice while wrapping a package..
+
+# Chapter 2
+
+I tried to phone up Dr. Alecan, but he wasn't answering his phone. *Damn it, Sev Alecan* I thought to myself.
+
+The Pokémon cards were a thoughtful gift. After all, I had been excited about the October Pokemon X/Y release. And I needed to talk to Dr. Alecan about my prescription; I was probably due for another eye exam soon.
+
+I popped in my car, still covered in bird shit, put my GPS in the mount, and waited about an hour for it to find a satellite.
+
+
+
+
