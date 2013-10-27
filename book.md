@@ -22,3 +22,5 @@ Nobody is to be seen. I look left and right, but to no avail - whoever or whatev
 I pick up the tissue-box-sized package and balance it together in my arms with the paper towels and Windex, and walk back inside.  The other things get dropped lazily onto the kitchen counter, and I pick up a knife to open the package with. I pull out the popcorn (damn, no bubble wrap). I jump backwards, startled. Inside the box, are a set of Pokémon cards... covered in blood.
 
 I opened the cupboard and put on a pair of yellow latex gloves. I carefully remove the pokemon cards only to find a note underneath, written in crayon. The words are not legible, however. This appears to be the handwriting of a doctor.
+
+I give up trying to decipher it and instead lick the card. I instantly recognize the taste. "Mhh tomato juice." There's only one doctor I know who would drink tomato juice while wrapping a package..
