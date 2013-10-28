@@ -43,3 +43,5 @@ Amy nervously grabs the necklace she is wearing, and then after taking a deep br
 I'm still approaching the mansion as I observe Amy.  She works at the eye doctors, but seems a bit off today. I feel a slight pang of jealousy- she looks like she's also expecting more from Dr. Alecan than just filing records on patients. I push aside the wave of inadequacy that begins pooling in my mind, and continue approaching the door.
 
 Amy has already knocked, I step up the deck and greet her nervously. 
+
+The heavy wooden door creaks as it slowly opens. Nobody is standing inside; did the door open on its own?  Amy smiles briefly at me and walks in, obviously knowing where she's going. I think I remember my way to the front desk, maybe I can page Dr. Alecan there.
