@@ -45,3 +45,5 @@ I'm still approaching the mansion as I observe Amy.  She works at the eye doctor
 Amy has already knocked, I step up the deck and greet her nervously. 
 
 The heavy wooden door creaks as it slowly opens. Nobody is standing inside; did the door open on its own?  Amy smiles briefly at me and walks in, obviously knowing where she's going. I think I remember my way to the front desk, maybe I can page Dr. Alecan there.
+
+I step inside and look around. Amy already seems to have disappeared.. Did I lose track of how much time I spent outside waiting? Thinking the hallway is to the right, I decide to walk in that direction, but something seems strange.  I notice the lights in the hall aren't on. Surely these are normal business hours? I check my watch only to find that 2 hours have passed since I arrived at the mansion. I become frightened and suddenly I hear a loud SLAM.... The entrance has shut itself... I run back to the door to find no one around, and it is locked. I am now trapped alone in this huge mansion (about 35000 square feet) seemingly alone. Amy is nowhere to be found. Trapped, I begin to plot what my next course of action should be.
