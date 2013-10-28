@@ -39,3 +39,7 @@ The huge pair of doors at the entrance can be intimidating at the distance but t
 Searching on the interwebs for it has been to no avail -maybe my google-fu isnt advanced enough- and I never had the courage to ask him what it means...
 
 Amy nervously grabs the necklace she is wearing, and then after taking a deep breath she walks up to the massive double-doors and knocks the doors with the frightening wolf knocker things.
+
+I'm still approaching the mansion as I observe Amy.  She works at the eye doctors, but seems a bit off today. I feel a slight pang of jealousy- she looks like she's also expecting more from Dr. Alecan than just filing records on patients. I push aside the wave of inadequacy that begins pooling in my mind, and continue approaching the door.
+
+Amy has already knocked, I step up the deck and greet her nervously. 
