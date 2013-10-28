@@ -33,6 +33,6 @@ The Pokémon cards were a thoughtful gift. After all, I had been excited about t
 
 I popped in my car, still covered in bird shit, put my GPS in the mount, and waited about an hour for it to find a satellite.
 
-
+After a long drive past the countryside and through a large forest I finally arrived at the Alecan mansion. It was a ridiculous location for a doctor's office - and if I hadn't had a secret crush on him I would have changed to another eye doctor long ago.
 
 
