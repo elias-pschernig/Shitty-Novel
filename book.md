@@ -35,4 +35,5 @@ I popped in my car, still covered in bird shit, put my GPS in the mount, and wai
 
 After a long drive past the countryside and through a large forest I finally arrived at the Alecan mansion. It was a ridiculous location for a doctor's office - and if I hadn't had a secret crush on him I would have changed to another eye doctor long ago.
 
-
+The huge pair of doors at the entrance can be intimidating at the distance but the crest of Alecan famiy in the middle of both, a sheep holding a stick in it's mouth made me throw a giggle everytime.
+Searching on the interwebs for it has been to no avail -maybe my google-fu isnt advanced enough- and I never had the courage to ask him what it means...
