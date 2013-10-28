@@ -37,3 +37,5 @@ After a long drive past the countryside and through a large forest I finally arr
 
 The huge pair of doors at the entrance can be intimidating at the distance but the crest of Alecan famiy in the middle of both, a sheep holding a stick in it's mouth made me throw a giggle everytime.
 Searching on the interwebs for it has been to no avail -maybe my google-fu isnt advanced enough- and I never had the courage to ask him what it means...
+
+Amy nervously grabs the necklace she is wearing, and then after taking a deep breath she walks up to the massive double-doors and knocks the doors with the frightening wolf knocker things.
