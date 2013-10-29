@@ -49,3 +49,8 @@ The heavy wooden door creaks as it slowly opens. Nobody is standing inside; did 
 I step inside and look around. Amy already seems to have disappeared.. Did I lose track of how much time I spent outside waiting? Thinking the hallway is to the right, I decide to walk in that direction, but something seems strange.  I notice the lights in the hall aren't on. Surely these are normal business hours? I check my watch only to find that 2 hours have passed since I arrived at the mansion. I become frightened and suddenly I hear a loud SLAM.... The entrance has shut itself... I run back to the door to find no one around, and it is locked. I am now trapped alone in this huge mansion (about 35000 square feet, or 3,251.6 m²) seemingly alone. Amy is nowhere to be found. Trapped, I begin to plot what my next course of action should be.
 
 After hesitating for a while, I decide to walk up the big stairway at the opposite end of the hall, which should lead to the doctor's apartment. Likely that's also where Amy went. But the moment I set my foot on the first step, I cringe - someone behind me just put a hand on my shoulder.
+
+It is Amy. How did she get there without me noticing? But for the time being I'm relieved I'm not alone anymore. "What are you doing?" she asks. Wordless I pull out the pack of Pokemon cards with red stains and show it to her. She gives me an ominous look. Then she opens her purse and produces another set of Pokemon cards.
+
+
+
