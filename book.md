@@ -53,4 +53,12 @@ After hesitating for a while, I decide to walk up the big stairway at the opposi
 It is Amy. How did she get there without me noticing? But for the time being I'm relieved I'm not alone anymore. "What are you doing?" she asks. Wordless I pull out the pack of Pokemon cards with red stains and show it to her. She gives me an ominous look. Then she opens her purse and produces another set of Pokemon cards.
 
 
+"I can't find my way around this place. How do I get to Dr. Alecan's office?" I question.
 
+"I..." Amy pauses, "I know my way around this place. I've worked here for a while. I just... can't find my way anymore."
+
+"Anymore?"
+
+"It's like something is off... The rooms are different, or I'm not remembering right." Amy admits, a bit embarrassed.
+
+"Oh, well, are you tired?" I begin to ask, but then realize I don't really care that much. "Let's just keep wandering until we can find somebody to ask." I interrupt Amy before she can respond.
