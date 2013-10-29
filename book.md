@@ -62,3 +62,7 @@ It is Amy. How did she get there without me noticing? But for the time being I'm
 "It's like something is off... The rooms are different, or I'm not remembering right." Amy admits, a bit embarrassed.
 
 "Oh, well, are you tired?" I begin to ask, but then realize I don't really care that much. "Let's just keep wandering until we can find somebody to ask." I interrupt Amy before she can respond.
+
+Amy says, "I think we should go this way," and points to the northern corridor. Amy and I begin walking down the corridor. As we walk, I thought to myself "If Amy is a regular employee here, why haven't I seen her before?" Even though I'm clearly antisocial and uninterested in any sort of smalltalk, I ask Amy "So, how long have you worked here?" She responds by telling me that she's fairly new here and has only been working here for the past 2 months. That would make sense since my last eye exam was about a year ago.
+
+We eventually come to a fork in the hall. "Which way should we go?", asks Amy.
