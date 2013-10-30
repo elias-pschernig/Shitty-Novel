@@ -75,4 +75,4 @@ And rather than reacting rationally by choosing a direction, or investigating th
 
 # Chapter 3
 
-When I come to, I'm in a chair in a tiny room. There are machines for measuring eye-sight on one side of me, and directly ahead is a faint projection of letters in a box on the wall.
+When I come to, I'm alone in a chair in a tiny room. There are machines for measuring eye-sight on one side of me, and directly ahead is a faint projection of letters in a box on the wall.
