@@ -91,6 +91,24 @@ I gently open the office door and peer out.
 
 "Sev? Dr. Alecan?"
 
-The hallway and all of the offices are dim, it seems like the office is closed, even though it's a mid-morning, mid-week.  Right? My head feels like a pot of mashed potatoes, i feel disoriented. For how long was i faint? This is all so weird, im going home now, better call someone to pick me up while i walk to the entrance -if i can find it. A chilling sensation moves from the bottom of my spine to the top of my head, i cant feel my cellphone in my pants. I proceed to confirm it and my cellphone is gone. "Did i drop it?" - i think to myself- "but wait, how did i get here? did somebody moved me here?", if somebody did move me then that person could know where my cellphone was. Maybe Pamy moved me and went looking for something. Yeah, that's probably it. I'll just wait here for Pamty.. ..Sevpat... Dr. Amycan... to come back. My brain feels foggy.
+The hallway and all of the offices are dim, it seems like the office is closed, even though it's a mid-morning, mid-week.  Right? My head feels like a pot of mashed potatoes; I feel disoriented. 
 
-I waited for 20 minutes, and still no signs of anybody. I start to get desperate.
+*For how long was I faint? This is all so weird, I'm going home now... Better call someone to pick me up while I walk to the entrance - if i can find it.* 
+
+A chilling sensation moves from the bottom of my spine to the top of my head: I can't feel my cellphone in my pants. I proceed to confirm it and my cellphone is gone. 
+
+"Did I drop it?" - I think to myself- "but wait, how did I get here? Did somebody moved me here?", 
+
+If somebody did move me then that person could know where my cellphone was. Maybe ...taP... moved me and went looking for something. Yeah, that's probably it. I'll just wait here for Pamty.. ..Sevpat... Dr. Amycan... to come back. My brain feels foggy.
+
+I waited for 20 minutes, and still no signs of anybody. I start to get desperate.  I feel queasy. I've managed to get down the hallway, to the receptionist desk. The office is cyan now. The world slows, then speeds up.
+
+I puke on the office chair my workmate, Clarissa, usually sits at.
+
+Puke... Neck tight, the ceiling. It's white again, but... Why does it smell like-- oh. Maybe, if I... I miss my dog.
+
+Without realizing it, I'm laying on the floor.  Fuzzy carpet. Fuzzy, textured, nice carpet. Reminds me of home. I rub the carpet nubs under my fingers, and they feel fuzzy. I admire the plaid blue-ish pattern. The smell of use.
+
+"AAammyyyy" I say to myself. "AMY. AYY. MEE. GET IT TOGETHER!"
+ 
+I struggle to get my mind together, but it's just too... kumquat.  Maybe I should just take a nap.  I curl up in the kid's waiting room, because Flopalope the bear is here. I love Flopalope.
