@@ -76,6 +76,9 @@ I knock a few time but there's no answer so we proceed to open the door slowly. 
 
 # Chapter 3
 
+* Remove this note once everyone's readjusted: The main character from Chapter 1 and 2 is Pat, who gets a name in this chapter. In Chapter 3, the first-person perspective is Amy's.
+* There are hints - Amy messes with her necklace, and she saw Pat faint.
+
 When I come to, I'm alone in a chair in a tiny room. There are machines for measuring eye-sight on one side of me, and directly ahead is a faint projection of letters in a box on the wall.
 
 "Pat?" I ask. I slide off the leathery eye exam chair and poke around the office.  In the mirror, I watch myself fumble with my necklace as I try to gather my thoughts.
