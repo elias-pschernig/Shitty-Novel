@@ -113,6 +113,10 @@ Without realizing it, I'm laying on the floor.  Fuzzy carpet. Fuzzy, textured, n
  
 I struggle to get my mind together, but it's just too... kumquat.  Maybe I should just take a nap.  I curl up in the kid's waiting room, because Flopalope the bear is here. I love Flopalope.
 
+I don't know how long I staid like this, but after a while I start feeling thirsty. My mind also seems to have sobered up a bit. Everything is so weird - I feel like in some shitty novel. And who is this woman, Pat? What is her relationship to the doctor, and why did she have those Pokemon cards? Did the doctor send them to both of us? What for?
+
+I push a button on the back of Flopalope's head which makes him play the soothing tune of a children's song. However it's not the same song it usually plays when I turn it on for little children waiting here. It's the same tune, but instead of making me feel happy as it would do otherwise, it sounds slightly... distorted and disconcerting.
+
 * You can continue working on Chapter 3 if you would like, or work on Chapter 4, since they are happening SIMULTANEOUSLY! WOOOOOOO!
 
 # Chapter 4
