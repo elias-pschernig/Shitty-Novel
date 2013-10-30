@@ -16,8 +16,3 @@ for your story, which other contributors will then expand upon.
 
 ## Special Characters
 If you need to type "é" on Windows, hold left-Alt and type (on the number pad), 0233
-
-
-
---Note by eatskolnikov:
-The apparent plot hole gave me an idea for a plot twist, please don't correct :T
