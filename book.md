@@ -78,3 +78,14 @@ I knock a few time but there's no answer so we proceed to open the door slowly. 
 
 When I come to, I'm alone in a chair in a tiny room. There are machines for measuring eye-sight on one side of me, and directly ahead is a faint projection of letters in a box on the wall.
 
+"Pat?" I ask. I slide off the leathery eye exam chair and poke around the office.  In the mirror, I watch myself fumble with my necklace as I try to gather my thoughts.
+
+*I saw Pat faint. Then I must have fainted, too.*
+
+I bite my lip as I stare at myself in the mirror, unsure. But, I'm alone now, so I feel a little more calm - less antagonized by Pat, snapping at me for no reason.
+
+I gently open the office door and peer out.
+
+"Sev? Dr. Alecan?"
+
+The hallway and all of the offices are dim, it seems like the office is closed, even though it's a mid-morning, mid-week.  Right?
