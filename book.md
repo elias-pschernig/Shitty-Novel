@@ -65,4 +65,14 @@ It is Amy. How did she get there without me noticing? But for the time being I'm
 
 Amy says, "I think we should go this way," and points to the northern corridor. Amy and I begin walking down the corridor. As we walk, I thought to myself "If Amy is a regular employee here, why haven't I seen her before?" Even though I'm clearly antisocial and uninterested in any sort of smalltalk, I ask Amy "So, how long have you worked here?" She responds by telling me that she's fairly new here and has only been working here for the past 2 months. That would make sense since my last eye exam was about a year ago.
 
-We eventually come to a fork in the hall. "Which way should we go?", asks Amy."You are the one who works here", I reply. She doesnt want to decide so we leave it to luck. I take a coin out of my pocket and call heads. I toss the coin in the air and realize that I didn't choose a direction for heads. The coin falls to the ground and lands on
+We eventually come to a fork in the hall. "Which way should we go?", asks Amy."You are the one who works here", I reply. She doesnt want to decide so we leave it to luck. I take a coin out of my pocket and call heads. I toss the coin in the air and realize that I didn't choose a direction for heads. The coin falls to the ground and lands on...
+
+... Its edge.  I pick up the coin again and toss it. Edge again. All at once, my brain just goes,
+
+"ALKAJWFE JHSADKJ KAFJHSAWUIEFH ALSKDJF ASFH"
+
+And rather than reacting rationally by choosing a direction, or investigating the coin further, or attempting to detect magnets, my brain just gives up. I pass out.
+
+# Chapter 3
+
+When I come to, I'm in a chair in a tiny room. There are machines for measuring eye-sight on one side of me, and directly ahead is a faint projection of letters in a box on the wall.
