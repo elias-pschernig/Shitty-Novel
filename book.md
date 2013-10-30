@@ -117,6 +117,8 @@ I struggle to get my mind together, but it's just too... kumquat.  Maybe I shoul
 
 # Chapter 4
 
+* Note for the confused author: Pat is the first-person character in this chapter
+
 I'm laying on what feels like a well polished floor in my face. I can't feel the glasses in my face anymore "Shit!... What just happened? Where am i?" - i say. I try to open my eyes but it's futile. I try to move but i can't. Im starting to feel anxious and i need to calm down. "Pat, calm down!" - i repeat to myself. I start breathing in and out slowly, trying to maintain focus in this situation. After a while i start feeling cramps in my left arm, then the right arm, then my legs. It hurts like hell but i get pass by. I try to stand up but i feel so weak. I cant open my eyes yet. "ugh! why is this happening? I want to go home."- i say to myself -"DOCTOR!!! AMY!!!"- i shout but to no avail, nobody responds and i break. "Where is everybody?!" "Somebody respond!!!". 
 
 After a while of snobing and just plain laying hopelessly on the floor i hear a sound in the distant, like a MIDI playing some song. I call for Amy and get no response so i start trying to get up. I still cant see so i try to look for a wall to support me. When i find it i get up and start walking slowly in the direction of the sound.
