@@ -112,3 +112,13 @@ Without realizing it, I'm laying on the floor.  Fuzzy carpet. Fuzzy, textured, n
 "AAammyyyy" I say to myself. "AMY. AYY. MEE. GET IT TOGETHER!"
  
 I struggle to get my mind together, but it's just too... kumquat.  Maybe I should just take a nap.  I curl up in the kid's waiting room, because Flopalope the bear is here. I love Flopalope.
+
+* You can continue working on Chapter 3 if you would like, or work on Chapter 4, since they are happening SIMULTANEOUSLY! WOOOOOOO!
+
+# Chapter 4
+
+I'm laying on what feels like a well polished floor in my face. I can't feel the glasses in my face anymore "Shit!... What just happened? Where am i?" - i say. I try to open my eyes but it's futile. I try to move but i can't. Im starting to feel anxious and i need to calm down. "Pat, calm down!" - i repeat to myself. I start breathing in and out slowly, trying to maintain focus in this situation. After a while i start feeling cramps in my left arm, then the right arm, then my legs. It hurts like hell but i get pass by. I try to stand up but i feel so weak. I cant open my eyes yet. "ugh! why is this happening? I want to go home."- i say to myself -"DOCTOR!!! AMY!!!"- i shout but to no avail, nobody responds and i break. "Where is everybody?!" "Somebody respond!!!". 
+
+After a while of snobing and just plain laying hopelessly on the floor i hear a sound in the distant, like a MIDI playing some song. I call for Amy and get no response so i start trying to get up. I still cant see so i try to look for a wall to support me. When i find it i get up and start walking slowly in the direction of the sound.
+
+The sound get's louder so i increase my speed. "Amy!! can you hear me? Are you ok? Please, answer!!!". Still no response. I follow the sound to a door and so i slide my hand towars the knob stumbling a bit. I turn the knob carefully and open the door. Before i can get inside i can feel my eyes getting moisty and suddently i can open them again. The door i just open is anohter bathroom and a mirror is right in front of me. I cant believe what im seeing, it's my reflection in perfect 20/20 vision...
