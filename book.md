@@ -133,4 +133,12 @@ I hear the sound of a cricket chirping somewhere in the bathroom.. Randomly curi
 
 While it seems like a crazy idea, I decide to climb up and follow the secret passage. Standing on the toilet seat, I grab on to the edge of the square opening in the ceiling and try to pull myself up. And then realize that getting into that opening - will be hard. There is nothing to hold on inside, but carefully stepping onto the toilet tank and a cabinet on the wall I manage to climb in. And hit my head hard. I'm in some narrow quadratic tube, slowly crawling forward. There's not enough space to turn around. After a while there is a junction, with paths leading to the left and right. I decide to continue on straight ahead. I encounter several more junctions - then suddenly the tube starts sloping downwards. When it gets so steep that I have a hard time holding on I decide it's safer to crawl backwards and try one of the junctions - but that moment I slip and start sliding down. I desperately try to hold on to the walls, but it's too late - I slide down a winding path, then finally fall through an opening. I'm in what appears to be a small basement room. I can't see a ceiling but a diffuse light from above dimly lits the room. Leaning against the opposite wall there's a skeleton sitting. "Must be Mac." I think.
 
+# Chapter 5
+
+I make a brief mental note to *always* pick up blueprints of a place before I head there, any time in the future. I know it's a silly thought, but now I was wishing that I had a map of those vents.
+
+Tears well in my eyes at the sight of the skeleton. I hope that Dr. Alecan isn't a secret murderer- it is no good to have secret fuzzy feelings for a murderer.  My chest is tight and I can barely breathe - both from stress, panic, and well as the mold.
+
+I study the basement walls - this whole room is maybe the size of a walk-in closet. Besides Mac, there are some old, yellowed books in stacks, a keg with a skull and crossbones painted on it, and an old, super-heterodyne radio.  There were no apparent doors.
+
 
