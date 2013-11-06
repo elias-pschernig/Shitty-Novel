@@ -135,6 +135,12 @@ While it seems like a crazy idea, I decide to climb up and follow the secret pas
 
 # Chapter 5
 
+When the music stops, I can hear an even more disconcerting noise. Tap, tap. Tap, tap. It seems to be coming from the wall. I stop hugging the plush bear who all of a sudden doesn't seem to provide much protection anymore. And before I know what I'm doing, I lie under the couch on one side of the room, completely hidden.
+
+As the tapping noise disappears, I'm starting to wonder about all the bird-crap on the shoes of people and their kids who must have walked on the very floor I'm lying on. I peek out from under the couch cover which hangs down all the way to the ground - but what I see makes me not want to leave my hideout...
+
+# Chapter 6
+
 I make a brief mental note to *always* pick up blueprints of a place before I head there, any time in the future. I know it's a silly thought, but now I was wishing that I had a map of those vents.
 
 Tears well in my eyes at the sight of the skeleton. I hope that Dr. Alecan isn't a secret murderer- it is no good to have secret fuzzy feelings for a murderer.  My chest is tight and I can barely breathe - both from stress, panic, and well as the mold.
